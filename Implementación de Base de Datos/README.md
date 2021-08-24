@@ -1,1 +1,1 @@
-[PDF del proyecto](FinalBD-FrancescoUccelli.pdf.pdf)
+[PDF del proyecto](FinalBD-FrancescoUccelli.pdf)
